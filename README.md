@@ -7,4 +7,4 @@
 Prof. Raül Santaeulàlia-Llopis
 T.A.: Albert Rodriguez
 
-I attach here my problem sets and my final project.
+I attach here my problems sets and my final project.
